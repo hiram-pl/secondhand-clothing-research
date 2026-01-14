@@ -1,4 +1,4 @@
-# Second-Hand Clothing Markets in Reims: A Comparative Mixed-Methods Study
+# Second-Hand Clothing Markets in Reims: A Comparative Mixed-Methods [Study](https://docs.google.com/document/d/1bfs8ZeHTFTJTX4W8RWGN78kJYnh3TN4w/edit)
 Here is a [link](https://docs.google.com/document/d/1bfs8ZeHTFTJTX4W8RWGN78kJYnh3TN4w/edit) to the full research.
 
 
