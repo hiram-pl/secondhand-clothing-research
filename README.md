@@ -1,4 +1,5 @@
-# Second-Hand Clothing Markets in Reims: A Comparative Mixed-Methods Study
+# [Second-Hand Clothing Markets in Reims: A Comparative Mixed-Methods Study] (https://docs.google.com/document/d/1bfs8ZeHTFTJTX4W8RWGN78kJYnh3TN4w/edit)
+
 
 How do second-hand clothes acquire different symbolic and moral meanings across charity and commercial vintage stores?
 
